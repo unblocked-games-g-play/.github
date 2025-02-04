@@ -112,4 +112,6 @@ Schools use network filters and firewalls to restrict access to entertainment we
 ## **Conclusion**  
 Unblocked games provide a fun and accessible way to enjoy gaming at school or work. With so many free-to-play options available, you can always find something exciting to pass the time. Just remember to follow your institution’s internet policies and play responsibly!  
 
+lesson 1 guru games
+
 ---
